@@ -1,2 +1,0 @@
-# BILstrategiccompany
-Jewelrly
